@@ -2,7 +2,7 @@
 
 # More information and download : https://btcflash.myfr.xyz/
 
-buy on whatsapp :  https://wa.me/996998311608
+buy on whatsapp : https://wa.me/996998311608
 
 -Work in all countries, no ip address restriction
 
